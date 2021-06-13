@@ -1,0 +1,2 @@
+# Sinclair-Lewis-College
+RESULT 
